@@ -1,1 +1,1 @@
-![Image Sequence_038_0002](banner.png)
+![Img](Cover.webp)
